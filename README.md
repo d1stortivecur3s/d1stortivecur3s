@@ -44,8 +44,6 @@ $${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,mean people and who talk t
 $${\color{#FF69B4}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
 
-[Ghost that visited my mansion](https:/d1stortivecur3s/.com)
-
 
 <p align="center"><img width="908" height="275" alt="image" src="https://github.com/user-attachments/assets/ea57dc3f-2900-4f63-a599-7c80d37ecf04" />
 
