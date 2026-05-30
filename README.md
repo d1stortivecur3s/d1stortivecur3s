@@ -26,7 +26,7 @@ $${\color{#FF69B4}\textsf{I go by any but prefer he/she/they!! or you can call w
 
 
 
-$${\color{#FF69B4}\textsf{I usually sit at Umamusume fandom or near my friends both safe sever and Vietnamese.}}$$
+$${\color{#FF69B4}\textsf{I usually sit at Umamusume fandom or near my friends both safe sever and Vietnamese sever.}}$$
 $${\color{#FF69B4}\textsf{Sometimes i will be very silence but dont worry much !! Because I'm a introvert so}}$$
 $${\color{#FF69B4}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
 $${\color{#FF69B4}\textsf{didn't have my permission unless you whisper me to ask.}}$$
