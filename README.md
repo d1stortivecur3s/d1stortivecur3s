@@ -26,7 +26,7 @@ $${\color{#FF69B4}\textsf{I go by any but prefer he/she/they!! or you can call w
 
 
 
-$${\color{#FF69B4}\textsf{I usually sit at Umamusume fandom,near my friends orr just randomly sit down sumwhere both safe sever and Vietnamese sever.}}$$
+$${\color{#FF69B4}\textsf{I usually sit at Umamusume fandom,near my friends or just randomly sit down sumwhere both safe sever and Vietnamese sever.}}$$
 $${\color{#FF69B4}\textsf{Sometimes i will be very silence but dont worry much !! Because I'm a introvert so}}$$
 $${\color{#FF69B4}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
 $${\color{#FF69B4}\textsf{didn't have my permission unless you whisper me to ask.}}$$
@@ -43,6 +43,9 @@ $${\color{#FF69B4}\textsf{My hobbies are drawing and writing so if you become my
 $${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,mean people and who talk trash about my ship(please respect each other).}}$$
 $${\color{#FF69B4}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
+
+
+![ghost that visited my mansion](https://komarev.com)
 
 
 <p align="center"><img width="908" height="275" alt="image" src="https://github.com/user-attachments/assets/ea57dc3f-2900-4f63-a599-7c80d37ecf04" />
