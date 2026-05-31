@@ -43,9 +43,15 @@ $${\color{#FF69B4}\textsf{My hobbies are drawing and writing so if you become my
 $${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,mean people and who talk trash about my ship(please respect each other).}}$$
 $${\color{#FF69B4}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=Perona's+Ghosts&color=ff69b4" alt="Profile Views" />
+</p>
 
 
-![ghost that visited my mansion](https://komarev.com)
+<p align="center">
+  <img src="https://media1.tenor.com/m/cKG_G_sX0-MAAAAd/perona-giggle.gif" alt="Mô tả ảnh" />
+</p>
+
 
 
 <p align="center"><img width="908" height="275" alt="image" src="https://github.com/user-attachments/assets/ea57dc3f-2900-4f63-a599-7c80d37ecf04" />
