@@ -40,7 +40,7 @@ $${\color{#FF69B4}\textsf{I'm also a multishippers so please share with me your 
 $${\color{#FF69B4}\textsf{so i think any ship is alright with me(i dont have any hated ships) but i do have favourite one ٩(ˊᗜˋ*)و ♡}}$$
 $${\color{#FF69B4}\textsf{My hobbies are drawing and writing so if you become my friends,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
 
-$${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,mean people and who talk trash about my ship(please respect each other).}}$$
+$${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,who doesn't respect boundaries n other(please respect each other).}}$$
 $${\color{#FF69B4}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
 <p align="center">
