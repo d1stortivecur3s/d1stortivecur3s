@@ -3,7 +3,7 @@
 $$\color{#FF69B4}{꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$$
                                          
                    
-$${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name(๑>؂•̀๑)!! I have mental issues}}$$
+$${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name(๑>؂•̀๑)!! Viet/Eng but i prefer English more. I have mental issues}}$$
 $${\color{#FF69B4}\textsf{(not yet diagnosed) and is a HSP person so please iwc. C\*h and int heavily encouraged :3!!!}}$$
 $${\color{#FF69B4}\textsf{I love cuddles and making new friends>⩊<.}}$$
 
