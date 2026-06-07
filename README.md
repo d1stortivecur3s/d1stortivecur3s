@@ -1,29 +1,12 @@
 <img width="1199" height="380" alt="image" src="https://github.com/user-attachments/assets/2fca2ff1-3c01-4f0c-83ef-5fdd31e24163" />
 
-$$\color{#FF69B4}{꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$$
                                          
                    
-$${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name(๑>؂•̀๑)!! I have mental issues}}$$
+$${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name. I go by any so feel free calling me whatever u like! I have mental issues}}$$
 $${\color{#FF69B4}\textsf{(not yet diagnosed) and is a HSP person so please iwc. C\*h and int heavily encouraged :3!!!}}$$
 $${\color{#FF69B4}\textsf{I love cuddles and making new friends>⩊<.}}$$
 
-<p align="center">$${\color{#FF69B4}\textsf{My flags !! }}$$
-                                         
-<table>
-  <tr>
-    <td><img width="50%" alt="image" src="https://github.com/user-attachments/assets/17b03016-51df-4036-ac9f-10e1cbf1126b" /></td>
-    <td>$$\color{#FF69B4}{\textsf{⌗}}$$</td>
-    <td><img width="50%" alt="image" src="https://github.com/user-attachments/assets/98cdc504-d551-4aa1-85a3-8e6240964433" /></td>
-    <td>$$\color{#FF69B4}{\textsf{⌗}}$$</td>
-    <td><img width="50%" alt="image" src="https://github.com/user-attachments/assets/944d359f-22bc-4433-8fc8-81c6d60f26b4" /></td>
-    <td>$$\color{#FF69B4}{\textsf{⌗}}$$</td>
-    <td><img width="50%" alt="image" src="https://github.com/user-attachments/assets/e7397bee-a80a-452c-b60b-0e35940bfe82"/></td>
-     <td>$$\color{#FF69B4}{\textsf{⌗}}$$</td>
-    <td><img width="50%" alt="image" src="https://github.com/user-attachments/assets/147e1903-733a-461a-a58c-ad81e679dfb2"/></td>
- </tr>
-</table>
 
-$${\color{#FF69B4}\textsf{I go by any but prefer he/she/they!! or you can call whatever you like(˶ˆᗜˆ˵)}}$$
 
 
 
@@ -34,7 +17,8 @@ $${\color{#FF69B4}\textsf{Sometimes i will be very quiet but dont worry much !! 
 $${\color{#FF69B4}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
 $${\color{#FF69B4}\textsf{didn't have my permission unless you whisper me to ask.}}$$
 $${\color{#FF69B4}\textsf{﹒⌗﹒🦇﹒౨ৎ˚₊‧♰)}}$$
-<p align="center"><img width="359" height="400" alt="image" src="https://github.com/user-attachments/assets/47bb38c7-5144-43d1-ad5e-066f7aa1ab93" />
+<p align="center"><img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/07da867e-2c70-4b9a-bd1a-c57291d58903" />
+
 
 <p align="center">$${\color{#FF69B4}\textsf{·:*¨༺ ♱✮♱ ༻¨*:·}}$$
 $${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,etc!!}}$$
