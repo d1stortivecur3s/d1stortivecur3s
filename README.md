@@ -7,8 +7,8 @@ $${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictio
 $${\color{#FF69B4}\textsf{(not yet diagnosed) and is a HSP person so please iwc. C\*h and int heavily encouraged :3!!!}}$$
 $${\color{#FF69B4}\textsf{I love cuddles and making new friends>⩊<.}}$$
 
-$${\color{#FF69B4}\textsf{I go by any but prefer he/she/they!! or you can call whatever you like(˶ˆᗜˆ˵)}}$$
-
+<p align="center">$${\color{#FF69B4}\textsf{My flags !! }}$$
+                                         
 <table>
   <tr>
     <td><img width="50%" alt="image" src="https://github.com/user-attachments/assets/17b03016-51df-4036-ac9f-10e1cbf1126b" /></td>
@@ -22,6 +22,9 @@ $${\color{#FF69B4}\textsf{I go by any but prefer he/she/they!! or you can call w
     <td><img width="50%" alt="image" src="https://github.com/user-attachments/assets/147e1903-733a-461a-a58c-ad81e679dfb2"/></td>
  </tr>
 </table>
+
+$${\color{#FF69B4}\textsf{I go by any but prefer he/she/they!! or you can call whatever you like(˶ˆᗜˆ˵)}}$$
+
 
 
 
