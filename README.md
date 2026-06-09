@@ -4,7 +4,7 @@
                    
 $${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name. I go by any so feel free calling me whatever u like! I have mental issues}}$$
 $${\color{#FF69B4}\textsf{(not yet diagnosed) and is a HSP person so please iwc. C\*h and int heavily encouraged :3!!!}}$$
-$${\color{#FF69B4}\textsf{I love cuddles and making new friends>⩊<.}}$$
+$${\color{#FF69B4}\textsf{I love cuddles and making new friends!!.}}$$
 
 
 
@@ -21,13 +21,13 @@ $${\color{#FF69B4}\textsf{﹒⌗﹒🦇﹒౨ৎ˚₊‧♰)}}$$
 
 
 <p align="center">$${\color{#FF69B4}\textsf{·:*¨༺ ♱✮♱ ༻¨*:·}}$$
-$${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,Hetalia,GnB,etc!!}}$$
+$${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,Hetalia,GnB,etc though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
 $${\color{#FF69B4}\textsf{feel free asking me other fds ᐢᗜᐢ. My fickin are Haru Urara,Bonney,Perona and Reisen(they are my fav chars as well but i still have more).}}$$
 $${\color{#FF69B4}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
-$${\color{#FF69B4}\textsf{so i think any ship is alright with me(i dont have any hated ships) but i do have favourite one ٩(ˊᗜˋ*)و ♡}}$$
-$${\color{#FF69B4}\textsf{My hobbies are drawing and writing so if you become my friends,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
+$${\color{#FF69B4}\textsf{so i think any ship is alright with me as long it's not proships or dark ships...(i dont have any hated ships). But i do have favourite one ٩(ˊᗜˋ*)و ♡}}$$
+$${\color{#FF69B4}\textsf{My hobbies are drawing,playin games and writing so if you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
 
-$${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,who doesn't respect boundaries n other(please respect each other).}}$$
+$${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,who doesn't respect boundaries n other}}$$
 $${\color{#FF69B4}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
 <p align="center">
