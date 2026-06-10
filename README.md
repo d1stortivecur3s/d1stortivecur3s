@@ -26,9 +26,9 @@ $${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one
 $${\color{#FF69B4}\textsf{feel free asking me other fds ᐢᗜᐢ. My fickin are Haru Urara,Bonney,Perona and Reisen(they are my fav chars as well but i still have more).}}$$
 $${\color{#FF69B4}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
 $${\color{#FF69B4}\textsf{so i think any ship is alright with me as long it's not proships or dark ships...(i dont have any hated ships). But i do have favourite one ٩(ˊᗜˋ*)و ♡}}$$
-$${\color{#FF69B4}\textsf{My hobbies are drawing,playin games and writing so if you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
+$${\color{#FF69B4}\textsf{My hobbies are drawing,playin games and writing. If you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
 
-$${\color{#FF69B4}\textsf{(¬`‸´¬) dni: basic dni,who doesn't respect boundaries n other}}$$
+$${\color{#FF69B4}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
 $${\color{#FF69B4}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
 <p align="center">
