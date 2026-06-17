@@ -21,7 +21,7 @@ $${\color{#FF69B4}\textsf{﹒⌗﹒🦇﹒౨ৎ˚₊‧♰)}}$$
 
 
 <p align="center">$${\color{#FF69B4}\textsf{·:*¨༺ ♱✮♱ ༻¨*:·}}$$
-$${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,Mili fan,etc}}$$
+$${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,Mili,S.U(Steven Universe),etc}}$$
  $${\color{#FF69B4}\textsf{though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
 $${\color{#FF69B4}\textsf{feel free asking me other fds ᐢᗜᐢ. My fickin are Haru Urara,Bonney,Perona and Reisen(they are my fav chars as well but i still have more).}}$$
 $${\color{#FF69B4}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
