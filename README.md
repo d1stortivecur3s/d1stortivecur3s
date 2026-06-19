@@ -32,7 +32,6 @@ $${\color{#FF69B4}\textsf{ dni: basic dni,who doesn't respect boundaries n other
 $${\color{#FF69B4}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
 
-![](https://komarev.com/ghpvc/?username=d1stortivecur3s&color=ff69b4&label=PERONA'S+GHOSTS) 
 
 <p align="center">
   <img src="https://media1.tenor.com/m/cKG_G_sX0-MAAAAd/perona-giggle.gif" alt="Mô tả ảnh" />
