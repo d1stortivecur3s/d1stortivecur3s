@@ -3,8 +3,8 @@
 
 
 $${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name. I go by any so feel free calling me whatever u like! I have mental issues}}$$
-$${\color{#FF69B4}\textsf{(not yet diagnosed) and is a HSP person so please iwc. C\*h and w2i heavily encouraged :3!!!}}$$
-$${\color{#FF69B4}\textsf{I love cuddles and making new friends!!.}}$$
+$${\color{#FF69B4}\textsf{(not yet diagnosed) and is a HSP person so iwc. C\*h and w2i heavily encouraged.}}$$
+$${\color{#FF69B4}\textsf{I love cuddles and making new friends!!⑅}}$$
 
 
 
@@ -16,15 +16,15 @@ $${\color{#FF69B4}\textsf{I usually sit at Umamusume fandom,near my friends or j
 $${\color{#FF69B4}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
 $${\color{#FF69B4}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
 $${\color{#FF69B4}\textsf{didn't have my permission unless you whisper me to ask.}}$$
-$${\color{#FF69B4}\textsf{﹒⌗﹒🦇﹒౨ৎ˚₊‧♰)}}$$
+$${\color{#FF69B4}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
 <p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/45b51d9a-7a4b-4a8a-a4bf-bb4232bc378e" />
 
 
 
-<p align="center">$${\color{#FF69B4}\textsf{·:*¨༺ ♱✮♱ ༻¨*:·}}$$
+<p align="center">$${\color{#FF69B4}\textsf{────────୨ৎ───────}}$$
 $${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,Mili,S.U(Steven Universe),etc}}$$
  $${\color{#FF69B4}\textsf{though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
-$${\color{#FF69B4}\textsf{feel free asking me other fds ᐢᗜᐢ. My fickin are Haru Urara,Bonney,Perona and Reisen(they are my fav chars as well but i still have more).}}$$
+$${\color{#FF69B4}\textsf{feel free asking me other fds ᐢᗜᐢ. My fickin are Haru Urara,Bonney and Reisen(they are my fav chars as well).}}$$
 $${\color{#FF69B4}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
 $${\color{#FF69B4}\textsf{so i think any ship is alright with me as long it's not proships or dark ships...(i dont have any hated ships). But i do have favourite one ٩(ˊᗜˋ*)و ♡}}$$
 $${\color{#FF69B4}\textsf{My hobbies are drawing,playin games and writing. If you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
