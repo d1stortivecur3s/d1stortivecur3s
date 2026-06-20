@@ -22,9 +22,9 @@ $${\color{#FF69B4}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟�
 
 
 <p align="center">$${\color{#FF69B4}\textsf{────────୨ৎ───────}}$$
-$${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,Mili,S.U(Steven Universe),Minecraft arg,etc}}$$
- $${\color{#FF69B4}\textsf{though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
-$${\color{#FF69B4}\textsf{feel free asking me other fds ᐢᗜᐢ. My fickin are Haru Urara,Bonney and Reisen(they are my fav chars as well).}}$$
+$${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ : One Piece,Umamusume,Touhou,Mili,Steven Universe,Minecraft}}$$
+$${\color{#FF69B4}\textsf{arg,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
+$${\color{#FF69B4}\textsf{feel free asking me other fds. My fickin are Haru Urara,Bonney and Reisen(they are my fav chars as well).}}$$
 $${\color{#FF69B4}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
 $${\color{#FF69B4}\textsf{so i think any ship is alright with me as long it's not proships or dark ships...(i dont have any hated ships). But i do have favourite one ٩(ˊᗜˋ*)و ♡}}$$
 $${\color{#FF69B4}\textsf{My hobbies are drawing,playin games and writing. If you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
