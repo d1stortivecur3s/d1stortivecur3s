@@ -1,4 +1,4 @@
-<p align="center"><img width="615" height="229" alt="image" src="https://github.com/user-attachments/assets/6d2fe0b1-cda2-4b12-94d5-05b6203a0ce2" />
+<p align="center"><img width="500" height="200" alt="image" src="https://github.com/user-attachments/assets/6305d41f-7625-40cb-878d-2287a5303a22" />
 
 
 
@@ -6,39 +6,41 @@
 
 
 
-$${\color{#FF69B4}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name. I go by any so feel free calling me whatever u like!}}$$
-$${\color{#FF69B4}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
+
+$${\color{#6a4e41}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name. I go by any so feel free calling me whatever u like!}}$$
+$${\color{#6a4e41}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
 
 
 
 
 
 
-$${\color{#68b0ec}\textsf{I usually sit at Umamusume fandom,near my friends or just randomly sit down sumwhere both safe sever and Vietnamese sever.}}$$
-$${\color{#68b0ec}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
-$${\color{#68b0ec}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
-$${\color{#68b0ec}\textsf{didn't have my permission unless you whisper me to ask.}}$$
-$${\color{#FF69B4}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
-<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/3f9ed011-6548-4039-80c1-9169d6b01fad" />
-
-
-<p align="center">$${\color{#FF69B4}\textsf{────────୨ৎ───────}}$$
-$${\color{#FF69B4}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :One Piece,Umamusume,Touhou,Mili,IDV,}}$$
-$${\color{#FF69B4}\textsf{Minecraft arg,Roblox,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
-$${\color{#FF69B4}\textsf{feel free asking me other fds. My fickin are Haru Urara,Bonney and Reisen(they are my fav chars as well).}}$$
-$${\color{#FF69B4}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
-$${\color{#FF69B4}\textsf{so i think any ship is alright with me as long it's not proships or dark ships...(i dont have any hated ships). But i do have favourite one :D!!!}}$$
-$${\color{#68b0ec}\textsf{My hobbies are drawing,playin games(mostly Roblox) and writing. If you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
-$${\color{#68b0ec}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
-$${\color{#68b0ec}\textsf{20+ and 13- please dni or at least iwec.}}$$
-$${\color{#FF69B4}\textsf{-ˋˏ✄┈┈┈┈}}$$
-
-
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=ff69b4&style=flat" alt="GITHUB-USERNAME" /> </p>
+$${\color{#6a4e41}\textsf{I usually sit at Umamusume fandom,near my friends or just randomly sit down sumwhere both safe sever and Vietnamese sever.}}$$
+$${\color{#6a4e41}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
+$${\color{#6a4e41}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
+$${\color{#6a4e41}\textsf{didn't have my permission unless you whisper me to ask.}}$$
+$${\color{#6a4e41}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
+<p align="center"><img width="300" height="299" alt="image" src="https://github.com/user-attachments/assets/c9fe20ab-f9c6-4d95-b624-714b134115f3" />
 
 
 
-<p align="center"><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a7289ea9-c746-4e5f-b825-c90f6d7e163b" />
+<p align="center">$${\color{#6a4e41}\textsf{────────୨ৎ───────}}$$
+$${\color{#6a4e41}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :One Piece,Umamusume,Touhou,Mili,IDV,}}$$
+$${\color{#6a4e41}\textsf{Minecraft arg,Roblox,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
+$${\color{#6a4e41}\textsf{feel free asking me other fds. My fickin are Haru Urara,Bonney and Reisen(they are my fav chars as well).}}$$
+$${\color{#6a4e41}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
+$${\color{#6a4e41}\textsf{so i think any ship is alright with me as long it's not proships or dark ships...(i dont have any hated ships). But i do have favourite one :D!!!}}$$
+$${\color{#6a4e41}\textsf{My hobbies are drawing,playin games(mostly Roblox) and writing. If you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
+$${\color{#6a4e41}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
+$${\color{#6a4e41}\textsf{20+ and 13- please dni or at least iwec.}}$$
+$${\color{#6a4e41}\textsf{-ˋˏ✄┈┈┈┈}}$$
+
+
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=6a4e41&style=flat" alt="GITHUB-USERNAME" /> </p>
+
+
+
+
 
 
 
