@@ -25,7 +25,7 @@ $${\color{#6a4e41}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟�
 
 
 <p align="center">$${\color{#6a4e41}\textsf{────────୨ৎ───────}}$$
-$${\color{#6a4e41}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Umamusume,Touhou,Mili,IDV,}}$$
+$${\color{#6a4e41}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Umamusume,Touhou,Mili,IDV,R1999,}}$$
 $${\color{#6a4e41}\textsf{Minecraft arg,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
 $${\color{#6a4e41}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen and Emil(they are my fav chars as well).}}$$
 $${\color{#6a4e41}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this.}}$$
