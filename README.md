@@ -7,7 +7,7 @@
 
 
 
-$${\color{#6a4e41}\textsf{Hallo!!!! Please call me Len or Adelaide or any fictionkin name. I go by any so feel free calling me whatever u like!}}$$
+$${\color{#6a4e41}\textsf{Hallo!!!! Please call me Len or Meuso or any fictionkin name. I go by any so feel free calling me whatever u like!}}$$
 $${\color{#6a4e41}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
 
 
@@ -25,12 +25,12 @@ $${\color{#6a4e41}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟�
 
 
 <p align="center">$${\color{#6a4e41}\textsf{────────୨ৎ───────}}$$
-$${\color{#6a4e41}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :One Piece,Umamusume,Touhou,Mili,IDV,}}$$
-$${\color{#6a4e41}\textsf{Minecraft arg,Roblox,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
-$${\color{#6a4e41}\textsf{feel free asking me other fds. My fickin are Haru Urara,Bonney and Reisen(they are my fav chars as well).}}$$
-$${\color{#6a4e41}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this}}$$
-$${\color{#6a4e41}\textsf{so i think any ship is alright with me as long it's not proships or dark ships...(i dont have any hated ships). But i do have favourite one :D!!!}}$$
-$${\color{#6a4e41}\textsf{My hobbies are drawing,playin games(mostly Roblox) and writing. If you become my friend,I'll feed you a lot of ship fanart and fanfic lol XD.}}$$
+$${\color{#6a4e41}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Umamusume,Touhou,Mili,IDV,}}$$
+$${\color{#6a4e41}\textsf{Minecraft arg,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
+$${\color{#6a4e41}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen and Emil(they are my fav chars as well).}}$$
+$${\color{#6a4e41}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this.}}$$
+$${\color{#6a4e41}\textsf{ i think any ship is alright with me as long it's not proships or dark ships...(i dont hate any ships,I feel neutral about those). But i do have favourite one :D!!! IDV:Adamil and GalaHelena(mainly them,game 0's participants)}}$$ and for other fandoms....please ask me!
+$${\color{#6a4e41}\textsf{My hobbies are drawing,playin games(mostly IDV) and writing.}}$$
 $${\color{#6a4e41}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
 $${\color{#6a4e41}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#6a4e41}\textsf{-ˋˏ✄┈┈┈┈}}$$
