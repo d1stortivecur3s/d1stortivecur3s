@@ -29,7 +29,9 @@ $${\color{#6a4e41}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one
 $${\color{#6a4e41}\textsf{Minecraft arg,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
 $${\color{#6a4e41}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen and Emil(they are my fav chars as well).}}$$
 $${\color{#6a4e41}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this.}}$$
-$${\color{#6a4e41}\textsf{ i think any ship is alright with me as long it's not proships or dark ships...(i dont hate any ships,I feel neutral about those). But i do have favourite one :D!!! IDV:Adamil and GalaHelena(mainly them,game 0's participants)}}$$ and for other fandoms....please ask me!
+$${\color{#6a4e41}\textsf{ i think any ship is alright with me as long it's not proships or dark ships...(i dont hate any ships,I feel neutral about those).}}$$
+$${\color{#6a4e41}\textsf{But i do have favourite one :D!!! IDV:Adamil and GalaHelena(mainly them,game 0's participants)}}$$
+$${\color{#6a4e41}\textsf{for other fandoms....please ask me}}$$
 $${\color{#6a4e41}\textsf{My hobbies are drawing,playin games(mostly IDV) and writing.}}$$
 $${\color{#6a4e41}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
 $${\color{#6a4e41}\textsf{20+ and 13- please dni or at least iwec.}}$$
