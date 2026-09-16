@@ -29,10 +29,10 @@ $${\color{#818ea3}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟�
 
 
 <p align="center">$${\color{#818ea3}\textsf{────────୨ৎ───────}}$$
-$${\color{#818ea3}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Umamusume,Touhou,Mili,IDV,R1999,}}$$
+$${\color{#818ea3}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Death Note,Touhou,Mili,IDV,R1999,}}$$
 $${\color{#818ea3}\textsf{Deltarune,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
-$${\color{#818ea3}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen and Emil(they are my fav chars as well).}}$$
-$${\color{#818ea3}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this.}}$$
+$${\color{#818ea3}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen,Near and Emil(they are my fav chars as well).}}$$
+$${\color{#818ea3}\textsf{I'm also multishippers so please share with me your ships!! Im very comfortable about this.}}$$
 $${\color{#818ea3}\textsf{ i think any ship is alright with me as long it's not proships or dark ships...(i dont hate any ships,I feel neutral about those).}}$$
 $${\color{#818ea3}\textsf{But i do have favourite one :D!!! IDV:Adamil and GalaHelena(mainly them,game 0's participants)}}$$
 $${\color{#818ea3}\textsf{for other fandoms....please ask me}}$$
