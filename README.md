@@ -1,4 +1,4 @@
-<p align="center"><img width="500" height="200" alt="image" src="https://github.com/user-attachments/assets/6305d41f-7625-40cb-878d-2287a5303a22" />
+<img width="1200" height="401" alt="image" src="https://github.com/user-attachments/assets/3c6f7b92-7dbb-4acd-a69a-27a6ac834b4a" />
 
 
 
@@ -7,38 +7,42 @@
 
 
 
-$${\color{#6a4e41}\textsf{Hallo!!!! Please call me Len or Meuso or any fictionkin name. I go by any so feel free calling me whatever u like!}}$$
-$${\color{#6a4e41}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
+
+
+$${\color{#818ea3}\textsf{Hallo!!!! Please call me Len or Meuso or any fictionkin name. I go by any so feel free calling me whatever u like!}}$$
+$${\color{#818ea3}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
 
 
 
 
 
 
-$${\color{#6a4e41}\textsf{I usually sit at Umamusume fandom,near my friends or just randomly sit down sumwhere both safe sever and Vietnamese sever.}}$$
-$${\color{#6a4e41}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
-$${\color{#6a4e41}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
-$${\color{#6a4e41}\textsf{didn't have my permission unless you whisper me to ask.}}$$
-$${\color{#6a4e41}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
-<p align="center"><img width="300" height="299" alt="image" src="https://github.com/user-attachments/assets/c9fe20ab-f9c6-4d95-b624-714b134115f3" />
+$${\color{#818ea3}\textsf{I usually sit at Umamusume fandom,near my friends or just randomly sit down sumwhere both safe sever and Vietnamese sever.}}$$
+$${\color{#818ea3}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
+$${\color{#818ea3}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
+$${\color{#818ea3}\textsf{didn't have my permission unless you whisper me to ask.}}$$
+$${\color{#818ea3}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
+
+<p align="center"><img width="300" height="299" alt="image" src="https://github.com/user-attachments/assets/b3ffd705-d124-4ac3-acdb-b1eef82a4de4" />
 
 
 
-<p align="center">$${\color{#6a4e41}\textsf{────────୨ৎ───────}}$$
-$${\color{#6a4e41}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Umamusume,Touhou,Mili,IDV,R1999,}}$$
-$${\color{#6a4e41}\textsf{Deltarune,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
-$${\color{#6a4e41}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen and Emil(they are my fav chars as well).}}$$
-$${\color{#6a4e41}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this.}}$$
-$${\color{#6a4e41}\textsf{ i think any ship is alright with me as long it's not proships or dark ships...(i dont hate any ships,I feel neutral about those).}}$$
-$${\color{#6a4e41}\textsf{But i do have favourite one :D!!! IDV:Adamil and GalaHelena(mainly them,game 0's participants)}}$$
-$${\color{#6a4e41}\textsf{for other fandoms....please ask me}}$$
-$${\color{#6a4e41}\textsf{My hobbies are drawing,playin games(mostly IDV) and writing.}}$$
-$${\color{#6a4e41}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
-$${\color{#6a4e41}\textsf{20+ and 13- please dni or at least iwec.}}$$
-$${\color{#6a4e41}\textsf{-ˋˏ✄┈┈┈┈}}$$
+
+<p align="center">$${\color{#818ea3}\textsf{────────୨ৎ───────}}$$
+$${\color{#818ea3}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Umamusume,Touhou,Mili,IDV,R1999,}}$$
+$${\color{#818ea3}\textsf{Deltarune,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
+$${\color{#818ea3}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen and Emil(they are my fav chars as well).}}$$
+$${\color{#818ea3}\textsf{I'm also a multishippers so please share with me your ships!! Im very comfortable about this.}}$$
+$${\color{#818ea3}\textsf{ i think any ship is alright with me as long it's not proships or dark ships...(i dont hate any ships,I feel neutral about those).}}$$
+$${\color{#818ea3}\textsf{But i do have favourite one :D!!! IDV:Adamil and GalaHelena(mainly them,game 0's participants)}}$$
+$${\color{#818ea3}\textsf{for other fandoms....please ask me}}$$
+$${\color{#818ea3}\textsf{My hobbies are drawing,playin games(mostly IDV) and writing.}}$$
+$${\color{#818ea3}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
+$${\color{#818ea3}\textsf{20+ and 13- please dni or at least iwec.}}$$
+$${\color{#818ea3}\textsf{-ˋˏ✄┈┈┈┈}}$$
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=6a4e41&style=flat" alt="GITHUB-USERNAME" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=818ea3&style=flat" alt="GITHUB-USERNAME" /> </p>
 
 
 
