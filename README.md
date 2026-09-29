@@ -9,7 +9,7 @@
 
 
 
-$${\color{#818ea3}\textsf{Hallo!!!! Please call me Len or Meuso or any fictionkin name. I go by any so feel free calling me whatever u like!}}$$
+$${\color{#818ea3}\textsf{Hallo!!!! Please call me Len, Meuso or any fictionkin name. Call me whatever suit you!}}$$
 $${\color{#818ea3}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
 
 
@@ -17,9 +17,9 @@ $${\color{#818ea3}\textsf{C\*h and w2i heavily encouraged.I love cuddles and mak
 
 
 
-$${\color{#818ea3}\textsf{I usually sit at Umamusume fandom,near my friends or just randomly sit down sumwhere both safe sever and Vietnamese sever.}}$$
+$${\color{#818ea3}\textsf{I usually sit near my friends or just randomly sit down sumwhere.}}$$
 $${\color{#818ea3}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
-$${\color{#818ea3}\textsf{i dont usually open up with strangers.  And don't copy my skin or take inspo if you}}$$
+$${\color{#818ea3}\textsf{i dont usually open up with strangers,just give me some time.  And don't copy my skin or take inspo if you}}$$
 $${\color{#818ea3}\textsf{didn't have my permission unless you whisper me to ask.}}$$
 $${\color{#818ea3}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
 
@@ -32,12 +32,11 @@ $${\color{#818ea3}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟�
 $${\color{#818ea3}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Death Note,Touhou,Mili,IDV,R1999,}}$$
 $${\color{#818ea3}\textsf{Deltarune,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
 $${\color{#818ea3}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen,Near and Emil(they are my fav chars as well).}}$$
-$${\color{#818ea3}\textsf{I'm also multishippers so please share with me your ships!! Im very comfortable about this.}}$$
-$${\color{#818ea3}\textsf{ i think any ship is alright with me as long it's not proships or dark ships...(i dont hate any ships,I feel neutral about those).}}$$
-$${\color{#818ea3}\textsf{But i do have favourite one :D!!! IDV:Adamil and GalaHelena(mainly them,game 0's participants)}}$$
-$${\color{#818ea3}\textsf{for other fandoms....please ask me}}$$
+$${\color{#818ea3}\textsf{I'm a multishipper ,remembered that please.}}$$
+$${\color{#818ea3}\textsf{ Im neutral about ships as long it's not proships or dark ships.}}$$
+$${\color{#818ea3}\textsf{u can ask ships from any fandoms if u want,ill tell.}}$$
 $${\color{#818ea3}\textsf{My hobbies are drawing,playin games(mostly IDV) and writing.}}$$
-$${\color{#818ea3}\textsf{ dni: basic dni,who doesn't respect boundaries n other}}$$
+$${\color{#818ea3}\textsf{ dni: basic dni}}$$
 $${\color{#818ea3}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#818ea3}\textsf{-ˋˏ✄┈┈┈┈}}$$
 
