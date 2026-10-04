@@ -41,7 +41,7 @@ $${\color{#818ea3}\textsf{20+ and 13- please dni or at least iwec.}}$$
 $${\color{#818ea3}\textsf{-ˋˏ✄┈┈┈┈}}$$
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=818ea3&style=flat" alt="GITHUB-USERNAME" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=818ea3&style=flat" /> </p>
 
 
 
