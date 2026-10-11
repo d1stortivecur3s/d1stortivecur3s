@@ -1,4 +1,22 @@
-<img width="1200" height="401" alt="image" src="https://github.com/user-attachments/assets/3c6f7b92-7dbb-4acd-a69a-27a6ac834b4a" />
+<p align="center"><img width="750" height="224" alt="image" src="https://github.com/user-attachments/assets/ddee3724-a473-410d-886c-884740e760ff" />
+
+
+
+
+
+$${\color{#aac96d}\textsf{Hallo!!!! Please call me Len, Meuso or any fictionkin name. Call me whatever suit you!}}$$
+$${\color{#aac96d}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
+
+
+
+
+$${\color{#aac96d}\textsf{I usually sit near my friends or just randomly sit down sumwhere.}}$$
+$${\color{#aac96d}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
+$${\color{#aac96d}\textsf{i dont usually open up with strangers,just give me some time.  And don't copy my skin or take inspo if you}}$$
+$${\color{#aac96d}\textsf{didn't have my permission unless you whisper me to ask.}}$$
+$${\color{#aac96d}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
+
+<p align="center"><img width="500" height="425" alt="image" src="https://github.com/user-attachments/assets/6a727047-fbad-4191-8e96-a3595bd3f043" />
 
 
 
@@ -6,42 +24,20 @@
 
 
 
+<p align="center">$${\color{#60516f}\textsf{────────୨ৎ───────}}$$
+$${\color{#60516f}\textsf{⋮ ⌗ ┆ Multifandoms person! Main fandoms(the one im currently active in):Code Geass,Touhou,IDV,R1999,}}$$
+$${\color{#60516f}\textsf{Death Note,Deltarune,etc.}}$$
+$${\color{#60516f}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen,C.C and Emil.}}$$
+$${\color{#60516f}\textsf{I'm a multishipper ,remembered that please.}}$$
+$${\color{#60516f}\textsf{ Im neutral about ships as long it's not proships or dark ships.}}$$
+$${\color{#60516f}\textsf{U can ask ships from any other fandoms if u want,ill tell.}}$$
+$${\color{#60516f}\textsf{My hobbies are drawing,playin games(mostly IDV) and writing.}}$$
+$${\color{#60516f}\textsf{ dni: basic dni}}$$
+$${\color{#60516f}\textsf{20+ and 13- please dni or at least iwec.}}$$
+$${\color{#60516f}\textsf{-ˋˏ✄┈┈┈┈}}$$
 
 
-
-$${\color{#818ea3}\textsf{Hallo!!!! Please call me Len, Meuso or any fictionkin name. Call me whatever suit you!}}$$
-$${\color{#818ea3}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
-
-
-
-
-
-
-$${\color{#818ea3}\textsf{I usually sit near my friends or just randomly sit down sumwhere.}}$$
-$${\color{#818ea3}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
-$${\color{#818ea3}\textsf{i dont usually open up with strangers,just give me some time.  And don't copy my skin or take inspo if you}}$$
-$${\color{#818ea3}\textsf{didn't have my permission unless you whisper me to ask.}}$$
-$${\color{#818ea3}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
-
-<p align="center"><img width="300" height="299" alt="image" src="https://github.com/user-attachments/assets/b3ffd705-d124-4ac3-acdb-b1eef82a4de4" />
-
-
-
-
-<p align="center">$${\color{#818ea3}\textsf{────────୨ৎ───────}}$$
-$${\color{#818ea3}\textsf{⋮ ⌗ ┆ Multifandoms person ! Main fandoms(the one im currently active in) .ᐟ :Death Note,Touhou,Mili,IDV,R1999,}}$$
-$${\color{#818ea3}\textsf{Deltarune,etc. Though i will jump into new or old fds sometimes very quick so be expect some random Tuesday im in your fd lol}}$$
-$${\color{#818ea3}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen,Near and Emil(they are my fav chars as well).}}$$
-$${\color{#818ea3}\textsf{I'm a multishipper ,remembered that please.}}$$
-$${\color{#818ea3}\textsf{ Im neutral about ships as long it's not proships or dark ships.}}$$
-$${\color{#818ea3}\textsf{u can ask ships from any fandoms if u want,ill tell.}}$$
-$${\color{#818ea3}\textsf{My hobbies are drawing,playin games(mostly IDV) and writing.}}$$
-$${\color{#818ea3}\textsf{ dni: basic dni}}$$
-$${\color{#818ea3}\textsf{20+ and 13- please dni or at least iwec.}}$$
-$${\color{#818ea3}\textsf{-ˋˏ✄┈┈┈┈}}$$
-
-
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=818ea3&style=flat" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=d1stortivecur3s&label=cuties%20&color=60516f&style=flat" /> </p>
 
 
 
