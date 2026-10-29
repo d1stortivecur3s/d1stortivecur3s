@@ -12,7 +12,7 @@ $${\color{#49b9d2}\textsf{C\*h and w2i heavily encouraged.I love cuddles and mak
 
 
 
-$${\color{#49b9d2}textsf{I usually sit near my friends or just randomly sit down sumwhere.}}$$
+$${\color{#49b9d2}\textsf{I usually sit near my friends or just randomly sit down sumwhere.}}$$
 $${\color{#49b9d2}\textsf{Sometimes i will be very quiet but dont worry much !! Because I'm a introvert so}}$$
 $${\color{#49b9d2}\textsf{i dont usually open up with strangers,just give me some time.  And don't copy my skin or take inspo if you}}$$
 $${\color{#49b9d2}\textsf{didn't have my permission unless you whisper me to ask.}}$$
@@ -29,7 +29,7 @@ $${\color{#49b9d2}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟�
 
 <p align="center">$${\color{#60516f}\textsf{────────୨ৎ───────}}$$
 $${\color{#49b9d2}\textsf{⋮ ⌗ ┆ Multifandoms person! Main fandoms(the one im currently active in):JJBA,Touhou,IDV,R1999,etc.}}$$
-$${\color#49b9d2textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen,and Emil.}}$$
+$${\color{#49b9d2}\textsf{feel free asking me other fds. My fickin are Haru Urara,Reisen,and Emil.}}$$
 $${\color{#49b9d2}\textsf{I'm a multishipper ,remembered that please.}}$$
 $${\color{#49b9d2}\textsf{ Im neutral about ships as long it's not proships or dark ships.}}$$
 $${\color{#49b9d2}\textsf{U can ask ships from any other fandoms if u want,ill tell.}}$$
