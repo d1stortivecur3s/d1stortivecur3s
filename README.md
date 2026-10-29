@@ -1,10 +1,12 @@
-<p align="center"><img width="750" height="224" alt="image" src="https://github.com/user-attachments/assets/ddee3724-a473-410d-886c-884740e760ff" />
+<p align="center"><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2452cbdc-768e-44fc-9a24-a3afce7b0ee8" />
 
 
 
 
 
-$${\color{#aac96d}\textsf{Hallo!!!! Please call me Len, Meuso or any fictionkin name. Call me whatever suit you!}}$$
+
+
+$${\color{#49b9d2}\textsf{Hallo!!!! Please call me Len, Meuso or any fictionkin name. Call me whatever suit you!}}$$
 $${\color{#aac96d}\textsf{C\*h and w2i heavily encouraged.I love cuddles and making new friends!!⑅}}$$
 
 
@@ -16,7 +18,7 @@ $${\color{#aac96d}\textsf{i dont usually open up with strangers,just give me som
 $${\color{#aac96d}\textsf{didn't have my permission unless you whisper me to ask.}}$$
 $${\color{#aac96d}\textsf{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$$
 
-<p align="center"><img width="500" height="425" alt="image" src="https://github.com/user-attachments/assets/6a727047-fbad-4191-8e96-a3595bd3f043" />
+<p align="center">
 
 
 
